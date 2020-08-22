@@ -1,0 +1,2 @@
+# TalkingBlaugrana
+Visa El Barça 
